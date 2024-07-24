@@ -59,9 +59,15 @@ regretevator
 ⁺₊ ✦ ꒰ა INTERSTS ໒꒱ ✦ ₊⁺
 
 ⸝⸝ ✦ 📌 Splatoon
+
 ⸝⸝ ✦ 📌 Pokemon
+
 ⸝⸝ ✦ 📌 Sky COTL
+
 ⸝⸝ ✦ 📌 Coroika
+
 ⸝⸝ ✦ 📌 The Hollow (netflix)
+
 ⸝⸝ ✦ 📌 Spider Man
+
 ⸝⸝ ✦ 📌 ATLA
