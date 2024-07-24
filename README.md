@@ -1,16 +1,65 @@
-## Hi there 👋
+⁺₊ ✦ ꒰ა໒꒱ ✦ ₊⁺
 
-<!--
-**wireglasses/wireglasses** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⸝⸝ ✦ 📌  ; prns:: he/them ﹒﹒︴ He/him pref 💫
 
-Here are some ideas to get you started:
+‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
+
+Basic DNI 
+🟢 
+🌙
+⛔️
+
+
+
+⁺₊ ✦ ꒰ა໒꒱ ✦ ₊⁺
+
+⸝⸝ ✦ 📌  ; prns:: he/them ﹒﹒︴ He/him pref 💫
+
+‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy
+
+ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+જ⁀➴ - Activity indicator
+🟢 ---► online! C + H
+🌙 ---► fully afk C + H
+⛔️ ---►  Semi afk C+ H
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+📌。. ;; i sit at the genshin, splatoon and astv area (mostly at the splatoon area)
+
+📌。. ;; C + H always okay ^ im mostly afk or alone so interact when im online
+
+📌。. ;; DNI if your under 7 - 12 or over 20 im a teenager so dont feel comfortable talking to kids and full grown adults
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+DNI;
+
+Proshippers
+
+Groomers
+
+Racists
+
+Hazbin/Helluva
+
+Homophobics
+
+DSMP
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+⁺₊ ✦ ꒰ა INTERSTS ໒꒱ ✦ ₊⁺
+
+⸝⸝ ✦ 📌 Splatoon
+⸝⸝ ✦ 📌 Pokemon
+⸝⸝ ✦ 📌 Sky COTL
+⸝⸝ ✦ 📌 Coroika
+⸝⸝ ✦ 📌 The Hollow (netflix)
+⸝⸝ ✦ 📌 Spider Man
+⸝⸝ ✦ 📌 ATLA
