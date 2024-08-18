@@ -6,11 +6,6 @@
 
 ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
 
-Basic DNI 
-🟢 
-🌙
-⛔️
-
 
 
 ⁺₊ ✦ ꒰ა໒꒱ ✦ ₊⁺
