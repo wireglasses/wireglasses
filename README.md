@@ -31,6 +31,8 @@
 
 📌。. ;; DNI if your under 7 - 12 or over 20 im a teenager so dont feel comfortable talking to kids and full grown adults
 
+📌。. ;; I will not help you with supporter in a party
+
 ⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
 
 DNI;
