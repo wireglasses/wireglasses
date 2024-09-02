@@ -15,7 +15,7 @@
 
 ⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
 
-📌。. ;; i sit at the genshin, splatoon, JJK and astv area (mostly at the splatoon area)
+📌。. ;; i sit at the genshin, splatoon, JJK and astv area
 
 📌。. ;; C + H always okay ^ im mostly afk or alone so interact when im online
 
