@@ -2,17 +2,7 @@
 
 ⸝⸝ ✦ 📌  ; prns:: he/them ﹒﹒︴ He/him pref 💫
 
-‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy
-
-ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
-
-
-
-⁺₊ ✦ ꒰ა໒꒱ ✦ ₊⁺
-
-⸝⸝ ✦ 📌  ; prns:: he/them ﹒﹒︴ He/him pref 💫
-
-‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy
+‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy / Itto
 
 ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
 
@@ -69,4 +59,16 @@ regretevator
 
 ⸝⸝ ✦ 📌 ATLA
 
-⸝⸝ ✦ 📌JJK
+⸝⸝ ✦ 📌 JJK
+
+⸝⸝ ✦ 📌 Genshin Impact
+
+⸝⸝ ✦ 📌 Snakes
+
+⸝⸝ ✦ 📌 Art
+
+⸝⸝ ✦ 📌 Synth
+
+⸝⸝ ✦ 📌 Guns
+
+⸝⸝ ✦ 📌 Ultra Kill
