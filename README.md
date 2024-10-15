@@ -49,6 +49,8 @@ regretevator
 
 ⸝⸝ ✦ 📌 Pokemon
 
+⸝⸝ ✦ 📌  A silent voice
+
 ⸝⸝ ✦ 📌 Sky COTL
 
 ⸝⸝ ✦ 📌 Coroika
