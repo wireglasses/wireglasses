@@ -23,8 +23,6 @@
 
 📌。. ;; I will not help you with supporter in a party
 
-📌。. ;;  "why is *insert character im cosplaying here* black?" -Its my style
-
 ⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
 
 DNI;
