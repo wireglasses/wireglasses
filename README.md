@@ -2,5 +2,5 @@
 
 ⸝⸝ ✦ 📌 ; prns:: He/Him
 
-![image](https://github.com/user-attachments/assets/6ced09ae-4b8d-49a6-827b-04cd05ecc920)
+![Skärmbild 2025-03-11 212832](https://github.com/user-attachments/assets/63b48d92-2bfb-4f67-9fd7-d07d38443386)
 
