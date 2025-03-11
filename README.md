@@ -2,7 +2,8 @@
 
 
 
-![Skärmbild 2025-03-11 212832](https://github.com/user-attachments/assets/7f68d016-4292-43f4-840e-56899eade7be)
+![Skärmbild 2025-03-11 212832](https://github.com/user-attachments/assets/f1629f58-ceb2-4461-ab03-8bf997cb5d94)
+
 
 
 
