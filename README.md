@@ -1,5 +1,6 @@
 
-![Skärmbild 2025-03-11 212832](https://github.com/user-attachments/assets/3a62866c-ba20-4d70-94a6-d7af4c5df286)
+<img width="340" height="340" alt="image" src="https://github.com/user-attachments/assets/85b55ea2-5059-46b2-9d57-9d0a8e2c20ff" />
+
 
 
 
